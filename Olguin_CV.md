@@ -4,7 +4,7 @@ Palm Desert, CA | (760) 442-7345 | jolgu003@ucr.edu
 
 ## Education
 
-`September 2018 - now`
+`September 2018 - Present`
 **University of California, Riverside (UCR)**
 
 **Bachelor of Arts**, double major in Public Policy & Education, Society, and Human Development
