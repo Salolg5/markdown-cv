@@ -19,7 +19,7 @@ Palm Desert, CA | (760) 442-7345 | jolgu003@ucr.edu
 **UCR Healthy Campus**, Riverside, CA, Student Assistant
   * Assist Built Environment and Healthy Beverage Initiative subcommittee co-leads in setting up regular meetings.
   * Draft up subcommittee meeting agendas
-  * Participate in monthly Healthy Campus advisory board meetings
+  * Participate in monthly Healthy Campus advisory board meetings.
 
 
 `March 2020 – Present`
